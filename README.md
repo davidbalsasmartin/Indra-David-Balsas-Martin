@@ -1,4 +1,4 @@
-# Mi presentación sobre el aprendizaje dual realizado en 1ºDAW
+# Mi aprendizaje dual en 1ºDAW
 
 
 
